@@ -1,2 +1,0 @@
-# whatagotgoing
-handyman page
